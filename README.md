@@ -49,7 +49,7 @@ GAVS Technologies — Chennai, IndiaZIF Product - Analyse and Predict Team Sep 2
 
 🎓 Professional Certificate Program in Blockchain IIT Kanpur June 2024 - November 2024
 
-🎓 Bachelor of Technology in Computer Science and EngineeringSRM Institute of Science and TechnologyCGPA: 9.30/10.00
+🎓 Bachelor of Technology in Computer Science and EngineeringSRM Institute of Science and Technology CGPA: 9.30/10.00
 
 
 🌐 Connect With Me
